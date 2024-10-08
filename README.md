@@ -1,1 +1,0 @@
-# Biodata-Abdillah_Faruq
